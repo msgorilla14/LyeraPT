@@ -1,7 +1,7 @@
 # Lyera Xin Ying Lye
 
 🇲🇾 Multilingual, Creative, Proactive, Diligent Adventurer from [Malaysia](https://goo.gl/maps/Qrx5D2P14FoidLWX8)<BR>
-🏴󠁧󠁢󠁳󠁣󠁴󠁿 Current MSc student of Human Animal Interaction at @[University of Stirling](https://www.stir.ac.uk/courses/pg-taught/human-animal-interaction/)<br>
+🏴󠁧󠁢󠁳󠁣󠁴󠁿 Current Master of Science Human Animal Interaction at @[University of Stirling](https://www.stir.ac.uk/courses/pg-taught/human-animal-interaction/)<br>
 _(Sep 2021 ~ Sep 2022)_<br>
 
 [Email](mailto:trilyera.co@gmail.com) / [Fiverr](https://www.fiverr.com/lyeraskylark?up_rollout=true) / [LinkedIn](https://linkedin.com/in/lyeraskylark14) / [GitHub](https://github.com/msgorilla14) / [Instagram](https://www.instagram.com/trilyera.life.lab) / [Facebook](https://www.facebook.com/trilyera.life.lab) / [Youtube](https://www.youtube.com/channel/UCjzH13HRRAf7cwqhvzPcEYw)
