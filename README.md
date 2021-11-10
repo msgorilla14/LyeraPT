@@ -1,8 +1,25 @@
 # Lyera Xin Ying Lye
 
-_Veterinarian/Human Animal Interaction researcher (and a doodle artist/freelance writer) from Malaysia_ <br>
+_Veterinarian/Human Animal Interaction researcher/Artist/Tutor from Malaysia_ <br>
 
 [Email](mailto:trilyera.co@gmail.com) / [LinkedIn](https://linkedin.com/in/lyeraskylark14) / [GitHub](https://github.com/msgorilla14) / [Instagram](https://www.instagram.com/trilyera.life.lab) / [Facebook](https://www.facebook.com/trilyera.life.lab) / [Youtube](https://www.youtube.com/channel/UCjzH13HRRAf7cwqhvzPcEYw)
+
+## 💬 Languages
+
+**Chinese**: Native <br>
+  - Simplified
+  - Traditional <br>
+  
+**English**: Fluent <br>
+  - IELTs band 8.0 <br>
+  - CEFR C1 <br>
+  
+**Malay**: Fluent <br>
+**Cantonese**: Fluent <br>
+**Hokkien**: Intermediate <br>
+**Spanish**: Basic <br>
+**Japanese**: Basic
+<br><br>
 
 ## 👩🏼‍🎓 Education
 
@@ -119,24 +136,5 @@ Several projects: <br>
 **Presidential Award in Academics** @ [National Taiwan University](https://www.ntu.edu.tw/english/) _(2018)_, _(2016)_ <br>
 **IVSA Top 10 Chapters** @ [International Veterinary Student Association](https://www.facebook.com/ivsapage/) _(2017)_ <br>
 
-## 💬 Languages
 
-**Chinese**: Native <br>
-  - Simplified
-  - Traditional <br>
-  
-**English**: Fluent <br>
-  - IELTs band 8.0 <br>
-  - CEFR C1 <br>
-  
-**Malay**: Fluent <br>
-
-**Cantonese**: Fluent <br>
-
-**Hokkien**: Intermediate <br>
-
-**Spanish**: Basic <br>
-
-**Japanese**: Basic
-<br><br>
 
