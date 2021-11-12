@@ -32,6 +32,7 @@ _(Sep 2021 ~ Sep 2022)_<br>
 
 **Life Design Artist** @ [Trilyera Life Lab](https://linktr.ee/trilyera) _(June 2021 ~ Present)_ <br>
 Several projects: <br>
+  - [Behance portfolio](https://www.behance.net/trilyera) <br>
   - Designed and sold LINE stickers <br>
       - [Hahaland Zootopia S1](https://store.line.me/stickershop/product/14159062/en)<br>
       - [Hahaland Zootopia new S1](https://store.line.me/stickershop/product/16757548/en?from=sticker)<br>
